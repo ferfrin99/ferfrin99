@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ferfrin99
-- 👀 I’m interested in this P3rr4s
+- 👀 I’m interested in those P3rr4s
 - 🌱 I’m currently learning Python / Java
 - 💞️ I’m looking to collaborate on Sam in InkaProductions.
 - 😄 Pronouns: Fer
